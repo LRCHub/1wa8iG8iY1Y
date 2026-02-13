@@ -1,0 +1,40 @@
+# THE ORCHESTRA TOKYO – Cloud 9
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Hey Hey Listen now Listen now  "Get a Piece"
+Hey Hey Listen now Listen now  "Get a Piece"
+Wow…
+Bring it on！Bang Bang 響けファンファーレ
+Fly high 青い鳥のように
+神頼みなんてすでにGive up
+ここからTry Try あの雲まで
+Right now 入れろ己のスイッチを
+有頂天 見上げるか見下すかJudgment
+You can free そうだ今こそChance  自由になれる瞬
+間だFly
+勇敢なFight 掴んだFlag  まだ見ぬ己の力をFound
+声枯らし叫べ叫べ叫べ乾いた不満を
+「できる」「やれる」「夢は叶う」「大丈夫 大丈
+夫」甘い言葉
+理想論の成れの果てで まだ引き金すら引いてなかっ
+た
+漠然がひしめく世界
+他人事だと論じてないで
+御託並べは流行らないよ
+I wanna be…wanna be…
+Bring it on！Bang Bang 響けファンファーレ
+Fly high 青い鳥のように
+神頼みなんてすでにGive up
+ここから Try Try あの雲まで
+Right now 入れろ己のスイッチを
+有頂天 見上げるか見下すかJudgment
+Wow…
+求めたいなら与える覚悟  夢物語はGAME OVER
+この手の中につめこむ希望  あの雲を目指して
+言葉に出して強く抱けLiberty  あの雲は遠くないか
+ら
+Hey Hey Listen now Listen now "Get a Piece"
+Hey Hey Listen now Listen now  “Let's get up”
+```
